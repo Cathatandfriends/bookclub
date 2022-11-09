@@ -16,4 +16,3 @@
 - I Am Not Going to Get Up Today! (1987)
 - Oh, the Places You'll Go! (1990)
 
-flag{1llb3tUkn0w@th1ng0r2!}
