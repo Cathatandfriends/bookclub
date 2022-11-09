@@ -1,0 +1,19 @@
+# Books
+
+# Selected Titles
+
+- And to Think That I Saw It on Mulberry Street (1937)
+- Horton Hatches the Egg (1940)
+- Horton Hears a Who! (1954)
+- The Cat in the Hat (1957)
+- How the Grinch Stole Christmas! (1957)
+- The Cat in the Hat Comes Back (1958)
+- One Fish, Two Fish, Red Fish, Blue Fish (1960)
+- Green Eggs and Ham (1960)
+- The Sneetches and Other Stories (1961)
+- Hop on Pop (1963)
+- Fox in Socks (1965)
+- The Lorax (1971)
+- The Butter Battle Book (1981)
+- I Am Not Going to Get Up Today! (1987)
+- Oh, the Places You'll Go! (1990)
