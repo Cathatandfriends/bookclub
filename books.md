@@ -1,5 +1,4 @@
 # Books
-
 - And to Think That I Saw It on Mulberry Street (1937)
 - Horton Hatches the Egg (1940)
 - Horton Hears a Who! (1954)
